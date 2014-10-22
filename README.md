@@ -1,0 +1,4 @@
+xmeyzahraj
+==========
+
+kehidupan penuh cobaan
